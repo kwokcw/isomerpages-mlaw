@@ -8,7 +8,7 @@ collection_name: join-us
 
 ### **Diverse opportunities for dynamic individuals**
 
-MinLaw offers a diverse range of opportunities for dynamic individuals to contribute your best, shape the future of our nation and make a difference to Singapore and its citizens.
+MinLaw offers a diverse range of opportunities for dynamic individuals to contribute your best, shape the future of our nation and make a difference to Singapore and its citizens..
 
 Drawing on expertise across all disciplines, our officers enjoy excellent career opportunities in MinLaw Headquarters, as well as in our Departments and Statutory Boards. You will have the opportunity to formulate and review policies related to Singapore’s legal and intellectual property infrastructure, land resources and the insolvency regime. You can also seek challenges in our Departments, where you work closely with members of the public.
 
